@@ -22,6 +22,6 @@ Thanks and Greetings
 <img src="https://raw.githubusercontent.com/SP6QKX/DigiProg-Adapter-6-in-1-/master/4.jpg">
 <img src="https://raw.githubusercontent.com/SP6QKX/DigiProg-Adapter-6-in-1-/master/5.jpg">
 
-ZWROT GOTÓWKI - CASHBACK  $$$$$  https://tiny.pl/9gh2m 
+ZWROT GOTÓWKI - CASHBACK  $$$$$  https://tiny.pl/9gh2m
 SHOPPING CASHBACK - Register and Get BONUS  $$$
 Otrzymasz 10zł za otwarcie konta CashBack za zakupy w Internecie !
